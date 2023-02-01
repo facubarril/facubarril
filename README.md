@@ -7,7 +7,7 @@
 
 ⚐ Based in Argentina
 
-ϟ Currently working on a big airsoft project :P
+ϟ Currently working on a big airsoft project and a personal portfolio (not for me) :P
 
 ϟ Recently found a way to install a stable photoshop and stable illustrator on linux (wohoo!)
 
